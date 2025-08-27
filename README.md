@@ -1,4 +1,4 @@
-# 💫 About Me:
+# About Me:
 
 ## Hi I'm Zulhaydar Fathurrahman Sidiq 👋
 
