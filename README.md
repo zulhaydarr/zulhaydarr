@@ -1,4 +1,4 @@
-![Zulhaydar](img/github-header-banner%20(3).png)
+![Zulhaydar](img/github-header-banner%20(4).png)
 
 <h1 align="left">Hey 👋 What's up?</h1>
 
